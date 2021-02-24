@@ -4,7 +4,7 @@
 Hello!!!!
 I am Centrect, I am a Minecraft streamer, minehut server owner, and Minehut Youtube rank(er).
 If you want to check me out, You can find me here!
-[youtube](https://www.youtube.com/channel/UCz4sh4dNpNHtqD80TvOZL-A), [twitter](https://twitter.com/quick007yt), and [everywhere else](https://linktr.ee/centrect)
+[youtube](https://www.youtube.com/centrect), [twitter](https://twitter.com/ttv_centrect), and [everywhere else](https://linktr.ee/centrect)
 
 Anywhere else, just search up "Centrect" :)
 
